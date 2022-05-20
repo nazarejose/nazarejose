@@ -2,7 +2,7 @@
 
 ### Comecei a programar há pouco tempo, porém o desejo de aprender surge a cada linha de código escrita!💻
 
- ⋄ Fortaleza - CE 🌎
+ ⋄ Fortaleza - CE ☀🌎
  
 ##
 
